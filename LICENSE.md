@@ -1,4 +1,4 @@
-# 
+# Sketch for macOS smart Extension: plugin support & layer styles offers the most advanced Sketch for macOS extension, with plugin support and layer styles. Ideal for professional
 
 
 
